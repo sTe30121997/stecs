@@ -1,2 +1,0 @@
-# stecs
-sTe. ro
